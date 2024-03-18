@@ -1,1 +1,0 @@
-# penguasa-langit-bawah
